@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ManamiMariko
 - 👀 I’m interested in Stardew Valley
 - 🌱 I’m currently learning Editing
-- 💞️ I’m looking to collaborate on Robpox
+- 💞️ I’m looking to collaborate on Roblox
 - 📫 How to reach me ... 
 
 <!---
